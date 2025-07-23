@@ -1,4 +1,4 @@
-Asliddin [22.07.2025 10:31]
+// Asliddin [22.07.2025 10:31]
 // 1 - masala 3 tasi
 
 
